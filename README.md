@@ -1,4 +1,4 @@
-## Hi there 👋
+hi im vincent and i go by he/it pronouns and love kevin synthv a lot ok
 
 <!--
 **kasaneted/kasaneted** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
